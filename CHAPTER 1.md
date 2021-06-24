@@ -12,20 +12,20 @@
 ## HAVE SOMETHING TO SAY
 	Don’t go to speak without preparing having minds a blank.
 	We all need to have something in which we are confident.
-  Have the first few sentences worked out completely so that you may not get trouble during beginning of speech.
+        Have the first few sentences worked out completely so that you may not get trouble during beginning of speech.
 	Know your subject better then your hearers.
 
 ## AFTER PREPARING FOR SUCCESS, EXPECT IT
-  If you believe you will fail,there is no hope, you will.
-  Have faith in ourselves.
-  Anyone who thoroughly knows himself must feel true humility.
+       If you believe you will fail,there is no hope, you will.
+       Have faith in ourselves.
+      Anyone who thoroughly knows himself must feel true humility.
   
 ## ASSUME MASTERY OVER YOUR AUDIENCE
-  Be courageous,make yourself be calm and confident.
-  Expect positive response from audience
-  Take a deep breath,realx,begin in conversational tone as we are speaking with one friend ,after you are in it goes fine.
+      Be courageous,make yourself be calm and confident.
+      Expect positive response from audience
+      Take a deep breath,realx,begin in conversational tone as we are speaking with one friend ,after you are in it goes fine.
 
-"FEAR IS COWARDLY WHEN IT IS NOT MASTERED"
+## "FEAR IS COWARDLY WHEN IT IS NOT MASTERED"
 
    
 
