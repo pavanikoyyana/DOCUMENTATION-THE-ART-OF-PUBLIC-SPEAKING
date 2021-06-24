@@ -20,7 +20,7 @@
   Have faith in ourselves.
   Anyone who thoroughly knows himself must feel true humility.
   
-##ASSUME MASTERY OVER YOUR AUDIENCE
+## ASSUME MASTERY OVER YOUR AUDIENCE
   Be courageous,make yourself be calm and confident.
   Expect positive response from audience
   Take a deep breath,realx,begin in conversational tone as we are speaking with one friend ,after you are in it goes fine.
