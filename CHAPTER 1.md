@@ -1,7 +1,8 @@
 # ACQUIRING CONFIDENCE BEFORE AN AUDIENCE
     
-    We all often experience strange sensation in the presence of audience . we need to practice in order to overcome self-consciousness and the fear that paralyzes us before audience.
-	PRACTICE in speaking before an audience will tend to remove all fear of audiences .we need to learn to speak by speaking.
+    We all often experience strange sensation in the presence of audience .
+    we need to practice in order to overcome self-consciousness and the fear that paralyzes us before audience.
+    PRACTICE in speaking before an audience will tend to remove all fear of audiences .we need to learn to speak by speaking.
 
 ## BE ABSORBED BY YOUR SUBJECT
  	If you know about your subject your subject you will be able to think of something.
