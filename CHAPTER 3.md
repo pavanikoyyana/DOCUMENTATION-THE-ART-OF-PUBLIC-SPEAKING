@@ -13,6 +13,6 @@
        Apply force to the important words and subordinating the unimportant words.
        Apply correct method of everyday speech to platform.
        Your own intelligence must guide and greatly to your profit.
-## " YOU MUST always be your own best critic "
+## " you must always be your own best critic "
        
        
